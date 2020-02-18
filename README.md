@@ -8,8 +8,3 @@ This is the greatest website in the world
 #OH WOW MUCH GOOD
 
 ~~so dumb~~  **SO AMAZING**
-~~so dumb~~  **SO AMAZING**
-~~so dumb~~  **SO AMAZING**
-~~so dumb~~  **SO AMAZING**
-~~so dumb~~  **SO AMAZING**
-~~so dumb~~  **SO AMAZING**
